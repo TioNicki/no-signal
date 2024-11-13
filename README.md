@@ -1,0 +1,1 @@
+Criado apenas pela diversão
